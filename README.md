@@ -1,2 +1,2 @@
 # WWgm
-the gospel truth Worl Wide understanding through music
+The gospel truth World Wide understanding through music.;
